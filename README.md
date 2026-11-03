@@ -1,1 +1,0 @@
-# sasikala-manasa-resume
